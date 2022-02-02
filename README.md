@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Corzun
+- 🟣Twitch Streamer (1.6k :D)
+- 🎮Play a variety of games
+- 🏒Play competitive ice hockey :P
